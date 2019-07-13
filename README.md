@@ -2,8 +2,8 @@
 Each Friday a heavy Metal selection of best Bands and song of the genre
 
 
-> JOIN OUR [TELEGRAM CHANNEL](https://t.me/joinchat/AAAAAErVRJwZrxf0ftxstw) to receive the list as soon as it is ready and
-> to be a active member building the weekly list.
+> JOIN OUR [TELEGRAM CHANNEL](https://t.me/joinchat/AAAAAErVRJwZrxf0ftxstw) https://t.me/joinchat/AAAAAErVRJwZrxf0ftxstw  to receive the list as soon as it is ready and
+> to be an active member building the weekly list.
 
 Our List
 ---
