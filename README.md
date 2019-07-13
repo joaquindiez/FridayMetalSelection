@@ -7,5 +7,5 @@ Our List
 
 
 * 2019
-	* (12 Of July)[2019/july/2.md]
+	* [12 Of July](2019/july/2.md)
 
