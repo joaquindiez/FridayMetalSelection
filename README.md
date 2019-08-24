@@ -50,8 +50,8 @@ de la amplitud del género.
 FRIDAY METAL SELECTION: 24 de Agosto 2019
 ----
 
-Esta es la selección de  temazos de la semana, una mezcla de estilos que nos da una visión
-de la amplitud del género.
+Esta es la selección de  temazos de la semana, ultimas releases de grandes bandas que 
+estan despuntando
 
 
 * INSOMNIUM - [Valediction](https://www.youtube.com/watch?v=_ZLguQ-8w3M)
