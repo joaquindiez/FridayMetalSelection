@@ -62,3 +62,16 @@ estan despuntando
 
 
 
+FRIDAY METAL SELECTION: 30 de Agosto 2019
+----
+
+Esta es la selección de  temazos de la semana, ultimas releases de grandes bandas que 
+estan despuntando
+
+
+* LACUNA COIL - [Layers Of Time](https://www.youtube.com/watch?v=aGSed4hnEv8)
+* EQUILIBRIUM - [Renegades](https://www.youtube.com/watch?v=_vgRnxTJw5o)
+* HIM - [Right Here In My Arms](https://www.youtube.com/watch?v=-SQGJ0rfIEk)
+* Bullet For My Valentine - [Tears Don't Fall](https://www.youtube.com/watch?v=9sTQ0QdkN3Q)
+
+
